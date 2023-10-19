@@ -14,5 +14,6 @@
 
 
 
-You can also find me on [LinkedIn]("https://www.linkedin.com/in/sonia-munoz-lopez/"). 
+You can also find me on [LinkedIn](https://www.linkedin.com/in/sonia-munoz-lopez/). 
+
 Let's connect and talk! :bulb:
