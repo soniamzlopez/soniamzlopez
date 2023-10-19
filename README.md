@@ -12,3 +12,6 @@
 - 📫 How to reach me: 
         sonia.mzlopez@gmail.com
 
+
+
+You can also find me on LinkedIn[https://www.linkedin.com/in/sonia-munoz-lopez/]. Let's connect and talk! :bulb:
